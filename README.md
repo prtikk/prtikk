@@ -18,7 +18,7 @@ I'm eager to collaborate with like-minded individuals on GitHub and other platfo
 ## How to Reach Me
 
 - 📧 Email: pratikmishra396@gmail.com
-- 🐦 Twitter: [@yourtwitterhandle](https://twitter.com/PratikMishra0_0)
+- 🐦 Twitter:(https://twitter.com/PratikMishra0_0)
 - 💼 LinkedIn: [LinkedIn Profile](www.linkedin.com/in/pratikmishra001)
 - 📱 Telegram: [ Telegram profile](https://t.me/Mshra001)
 
