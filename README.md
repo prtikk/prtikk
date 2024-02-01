@@ -19,7 +19,7 @@ I'm eager to collaborate with like-minded individuals on GitHub and other platfo
 
 - 📧 Email: pratikmishra396@gmail.com
 - 🐦 Twitter:(https://twitter.com/PratikMishra0_0)
-- 💼 LinkedIn:(www.linkedin.com/in/pratikmishra001)
+- 💼 LinkedIn:(www.linkedin.com/in/pratikmishra01)
 - 📱 Telegram:(https://t.me/Mshra001)
 
 ## Fun Fact
